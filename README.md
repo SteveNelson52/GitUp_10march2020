@@ -1,3 +1,6 @@
 # GitUp_10march2020
 Here we go again.  
 Endless Towson DoLoop
+
+No way out.  
+Lemme go home.
